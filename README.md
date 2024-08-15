@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @norahahmeedd
-- 👀 I’m interested in ... programming , coding maybe anything complicated also love radeing , music and movies
+- 👀 I’m interested in ... programming, coding maybe anything complicated also love reading , music, and movies
 - 🌱 I’m currently learning coding and language and anything in particular
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 
